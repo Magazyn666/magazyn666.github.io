@@ -1,0 +1,1 @@
+# magazyn666.github.io
